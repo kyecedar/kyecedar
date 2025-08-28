@@ -1,4 +1,4 @@
-**[kye.dog](https://kye.dog/)** [he,they] . 🏳️‍🌈 . 21 .  
+**[kye.dog](https://kye.dog/)** [he,they] . 🏳️‍🌈 . 22 .  
 `>` furry game dev and artist.  
 
 <!-- LINKS -->
